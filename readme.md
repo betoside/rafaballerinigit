@@ -1,3 +1,3 @@
 Tutorial git Rafaella Ballerini
 
-https://www.youtube.com/watch?v=UBAX-13g8OM
+video 2/2: https://www.youtube.com/watch?v=UBAX-13g8OM 
